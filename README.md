@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @tunghoang176
 - 👀 I’m interested in gaming
-- 🌱 I’m currently learning Interaction design in UTS
+- 🌱 Finished Interaction design in UTS
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ductung176@gmail.com or my VN phone number: 0384187199
 
